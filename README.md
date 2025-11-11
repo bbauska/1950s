@@ -1,2 +1,2 @@
-# 1980s
-1980s creating 1980s.bauska.org nostalgia television videos from YouTube.
+# 1950s
+1950s creating 1950s.bauska.org nostalgia television videos from YouTube.
